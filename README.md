@@ -1,4 +1,4 @@
-<h1>How-to-Hack-Instagram-Account-Quickly-in-2024</h1>
+<h1>How to Hack Instagram Account Quickly in 2024</h1>
 
 ## HACK Instagram ACCOUNT 2024: Easy and No Verification Method using Our Website
 
