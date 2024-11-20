@@ -1,0 +1,3 @@
+User-agent: *
+Disallow: 
+Sitemap: https://zaiyrekj75703449.github.io/How-to-Hack-Instagram-Account-Quickly-in-2024/sitemap.xml
